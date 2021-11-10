@@ -1,1 +1,1 @@
-# Landing_Page-Salon-de-beaute
+# Salon-de-beaute
